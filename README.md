@@ -1,0 +1,1 @@
+# MP2021-22_Simek-Ondrej_Redesign-WWW-stranek-spolecnosti-Diamantina-Training-s-r-o
